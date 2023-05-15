@@ -1,0 +1,2 @@
+# mulher
+TUDO LIBERADO
